@@ -20,6 +20,6 @@ I’m passionate about **Data Analysis, Business Consulting, and Digital Solutio
 
 ## 📫 Connect with Me
 - ✉️ Email: **abugedle1@gmail.com**  
-- 🔗 LinkedIn: [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)  
-- 🎥 YouTube: [youtube.com/@yourchannel](https://youtube.com/@yourchannel)  
+- 🔗 LinkedIn: [linkedin.com/in/yourprofile](https://linkedin.com/in/Abel Gedle)  
+- 🎥 YouTube: [youtube.com/@yourchannel](https://youtube.com/@abelgedle2049)  
 # abel-gedle
